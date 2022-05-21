@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and Ethical Hacking
 - 🌱 I’m currently learning Ruby and Python language
 - 💞️ I’m looking to collaborate on Termux and Python
-- 📫 How to reach me spartandoom22@gmail.com
+- 📫 How to reach me (pedophiles not accepted)
 - 😑 Please just don't bully me for my age and my English
 
 <!---
